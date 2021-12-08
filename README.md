@@ -25,7 +25,9 @@ I'm Muhammmad Daffa' Aflah Syarif, you can call me Syarif. I'm currently studyin
   - Email (daffaaflah6@gmail.com)
   - Instagram (https://instagram.com/daffaaflah6)
   - LinkedIn (www.linkedin.com/in/mdaffaasyarif)
+  - Github (https://github.com/daffaaflah6)
   - Blog (https://daffaaflah6.blogspot.com/)
+  - Medium (https://medium.com/@daffaaflah6)
 
 ---------------------------------------------------
 <div align="center">
